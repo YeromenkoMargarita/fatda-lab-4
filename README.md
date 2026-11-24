@@ -1,1 +1,1 @@
-# fatda-lab-4
+# Name: Yeromenko Marharyta | Group: KM-42
